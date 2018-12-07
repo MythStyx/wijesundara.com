@@ -1,2 +1,0 @@
-# wijesundara.com
-wijesundara.com
